@@ -1,6 +1,5 @@
 ### Olá! Eu Sou a Andressa 😉
-- 💻 Universitária no curso de CiÊncia da Computação pelo IFB (Instituto Federal de Brasília) 
-
+- 💻 Universitária no curso de CiÊncia da Computação pela UDF
 - 🏡Brasileira🌎Brasília✈Brasil 
 - Encontre-me por aqui  
 - https://www.linkedin.com/in/andressa-nunes-597391210
