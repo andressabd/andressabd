@@ -1,10 +1,10 @@
 ### Olá! Eu Sou a Andressa 😉
-- 💻 Universitária no curso de CiÊncia da Computação pela UDF
+- 💻 Universitária no curso de CiÊncia da Computação pelo  IFB
 - 🏡Brasileira🌎Brasília✈Brasil 
 - Encontre-me por aqui  
 - https://www.linkedin.com/in/andressa-nunes-597391210
  
-- 🌱 Estou aprendendo sobre linguagem Lua
+  
 - 😄 Pronouns: ela/dela
 - ⚡ Fun fact: Meu café preferido é cappuccino de chocolate
 
